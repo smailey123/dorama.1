@@ -46,16 +46,15 @@
 <img src="https://readrate.com/img/pictures/basic/259/259359/2593598/w816-4eccd711.jpg"width="200px">
 <img src="https://a.softboxdorama1.com/uploads/posts/2022-01/1643553716_a-business-proposal.jpeg"width="200px">
 <img src="https://dorama.land/uploads/frames/x1/0/10/10571.webp"width="200px">
-<img src="https://dorama.land/delovoe-predlozhenie25#"width="200px">
-<img src="https://dorama.land/delovoe-predlozhenie25#"width="200px">
-<img src="https://dorama.land/delovoe-predlozhenie25#"width="200px">
-<img src="https://dorama.land/delovoe-predlozhenie25#"width="200px">
-<img src="https://dorama.land/delovoe-predlozhenie25#"width="200px">
-<img src="https://dorama.land/delovoe-predlozhenie25#"width="200px">
-<img src="https://dorama.land/delovoe-predlozhenie25#"width="200px">
-<img src="https://dorama.land/delovoe-predlozhenie25#"width="200px">
-<img src="https://dorama.land/delovoe-predlozhenie25#"width="200px">
-<img src="https://dorama.land/delovoe-predlozhenie25#"width="200px">
+<img src="https://www.allkpop.com/upload/2022/04/content/081628/1649449732-business1.jpg"200px">
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRZzVnMl3WgZ3CtIkP2JnPjF83yTcWbXwNLYg&usqp=CAU"width="200px">
+<img src="https://doramtv.org/uploads/posts/2022-05/delovoe-predlozhenie-1.jpg"width="200px">
+<img src="https://blog-about-cinema.ru/wp-content/uploads/2023/08/1920x-6-1.webp"width="200px">
+<img src="https://i.pinimg.com/736x/a6/69/c3/a669c307344f0865dba4ecfc16a606ca.jpg"width="200px">
+<img src="https://opis-cdn.tinkoffjournal.ru/mercury/what-is-dorama-05.igxtyj..jpg"width="200px">
+<img src="https://ndc.book24.ru/resize/1100x320/iblock/16d/16d574e525ace0611a2d0524007cf012/750733027fbc41503024ac71c103b4d4.jpg"width="200px">
+<img src="https://www.yesasia.ru/wp-content/uploads/2022/02/dummy-6-3-700x467.jpeg"width="200px">
+<img src="https://dorama.land/uploads/generated/episodes/25/og/delovoe-predlozhenie-1-seriya40.webp?v=1"width="200px">
 <h2 style="background-color:#FFFACD;text-align:center">Сюжет дорамы «Деловое предложение»</h2>
 <p style="background-color:#FFFACD">Офисная романтическая дорама, в центре которой оказываются босс и подчинённая.</p>
 <p style="background-color:#FFFACD">Шин Ха Ри работает в известной компании. Однако она мечтает построить не успешную карьеру, а счастливую семью. У героини есть возлюбленный — но, вот незадача, им является человек, испытывающий к ней исключительно дружеские чувства и уже состоящий в отношениях. Со временем у Ха Ри не остаётся никакой надежды на взаимность. Но вскоре стечение обстоятельств приводит к неожиданным последствиям...</p>
