@@ -46,7 +46,7 @@
 <img src="https://readrate.com/img/pictures/basic/259/259359/2593598/w816-4eccd711.jpg"width="200px">
 <img src="https://a.softboxdorama1.com/uploads/posts/2022-01/1643553716_a-business-proposal.jpeg"width="200px">
 <img src="https://dorama.land/uploads/frames/x1/0/10/10571.webp"width="200px">
-<img src="https://www.allkpop.com/upload/2022/04/content/081628/1649449732-business1.jpg"200px">
+<img src="https://www.allkpop.com/upload/2022/04/content/081628/1649449732-business1.jpg"width="200px">
 <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRZzVnMl3WgZ3CtIkP2JnPjF83yTcWbXwNLYg&usqp=CAU"width="200px">
 <img src="https://doramtv.org/uploads/posts/2022-05/delovoe-predlozhenie-1.jpg"width="200px">
 <img src="https://blog-about-cinema.ru/wp-content/uploads/2023/08/1920x-6-1.webp"width="200px">
