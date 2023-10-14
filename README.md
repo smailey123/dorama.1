@@ -43,7 +43,7 @@
       </tr>
    </table>
 <h2 style="text-align:center;background-color:#FF8C00">Кадры</h2>
-<img src="https://dorama.land/delovoe-predlozhenie25#"width="200px">
+<img src="https://readrate.com/img/pictures/basic/259/259359/2593598/w816-4eccd711.jpg"width="200px">
 <img src="https://dorama.land/delovoe-predlozhenie25#"width="200px">
 <img src="https://dorama.land/delovoe-predlozhenie25#"width="200px">
 <img src="https://dorama.land/delovoe-predlozhenie25#"width="200px">
